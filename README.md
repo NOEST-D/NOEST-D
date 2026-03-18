@@ -1,4 +1,4 @@
-## Hi there 👋 ##
+## Hi there 👋
 
 Im just here to learn. 🌱
 
